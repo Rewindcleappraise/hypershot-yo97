@@ -1,4 +1,4 @@
-
+secret hypershot Scripts offers the most advanced hypershot Script, with auto-heal and auto-farm. Perfect for dominating any match.
 
 
 
